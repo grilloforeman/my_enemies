@@ -13,3 +13,5 @@ I'm just a programmer, nothing more and maybe someone with insight beyond the ot
 whether it's Nikes or Seila or whatever, I'm not friends with anyone but a mobster, what's in my head to create a system to sell millions of shirts, 
 and force the crowd to use VIBEgoods, damn it's going to be awesome, after teams, then I pay and inject everything,
 everyone using them, then the Chinese headphones after everything
+
+![fone_chine](fone_chine.jpg)
